@@ -30,5 +30,39 @@
 
 ## Training Progress
 
+# Facility & Equipment
+
+# Warming Up
+
+# The Squat
+
+## The Squat Position
+
+## Variation & Modification
+
+## The Bounce
+
+## Breathing
+
+## Learning & Teaching the Squat
+
+## The Back Squat
+
+# Foot Positions & Transition
+
+# The Hook Grip
+
+# The Double Knee Bend
+
+# Staring Position Principles
+
+## Understanding the Position
+
+## Entering the Starting Position
+
+
+
+
+
 
 
